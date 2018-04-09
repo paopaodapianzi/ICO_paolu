@@ -1,4 +1,4 @@
-# 【DFINITY】【IOTEX】【LINO】【AKASHA】 项目相关代投
+# 【DFINITY】【IOTEX】【LINO】【AKASHA】 项目相关代投跑路
 > 目前追踪流程：“泡泡” -> “an” -> “连臣” -> “糖糖”
 我们希望有更多受到损失的朋友能转发这些信息，并且有能力更新相关并且同步信息。
 不会操作github的朋友可以发邮件到paopaodapianzi@protonmail.com
@@ -11,7 +11,7 @@
 * 手机号：15967841445
 * 地址1：浙江省瑞安市南宾街道林洋临男南村
 * 地址2：安阳街道欧瑞豪庭3栋2单元301室
-
+![](https://github.com/paopaodapianzi/ICO_paolu/blob/master/paopao.jpeg)
 ***
 
 ## “AN”
@@ -26,6 +26,7 @@
 ***
 
 “连臣”
+![](https://github.com/paopaodapianzi/ICO_paolu/blob/master/an.jpeg)
 
 ***
 
