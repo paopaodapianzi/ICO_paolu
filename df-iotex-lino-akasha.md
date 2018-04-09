@@ -11,23 +11,25 @@
 * 手机号：15967841445
 * 地址1：浙江省瑞安市南宾街道林洋临男南村
 * 地址2：安阳街道欧瑞豪庭3栋2单元301室
-![](https://github.com/paopaodapianzi/ICO_paolu/blob/master/paopao.jpeg)
+
 ***
 
-## 魏静静（an
-* 齐晓华‭(糖糖)  女  
-* 手机:186 3755 8766，
-* 河南平顶山人 ，
-* 地址:河南省平顶山市郏县经一路南段路西 郏县茨芭乡齐村四号
-* 身份证号吗:41042519841108052X
-* 微信号:chumoXingfuqq
-* 支付宝号:186 3755 8766
+## 魏静静（an）
+![](https://github.com/paopaodapianzi/ICO_paolu/blob/master/paopao.jpeg)
 
 ***
 
 ## “连臣”
+
 ![](https://github.com/paopaodapianzi/ICO_paolu/blob/master/an.jpeg)
 
 ***
 
 ## 齐晓华 （糖糖）
+齐晓华‭(糖糖)  女  
+手机:186 3755 8766，
+河南平顶山人 ，
+地址:河南省平顶山市郏县经一路南段路西 郏县茨芭乡齐村四号
+身份证号吗:41042519841108052X
+微信号:chumoXingfuqq
+支付宝号:186 3755 8766
