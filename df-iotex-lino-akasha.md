@@ -1,7 +1,7 @@
 # 【DFINITY】【IOTEX】【LINO】【AKASHA】 项目相关代投跑路
 > 目前追踪流程：柯德豪（泡泡） -> 魏静静（an） -> 沐连臣 -> 齐晓华 （糖糖）
 我们希望有更多受到损失的朋友能转发这些信息，并且有能力更新相关并且同步信息。
-不会操作github的朋友可以发邮件到paopaodapianzi@protonmail.com
+不会操作github的朋友，可以发邮件到paopaodapianzi@protonmail.com
 
 ***
 
